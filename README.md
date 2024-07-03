@@ -1,1 +1,1 @@
-A good website :)
+A website for your business
